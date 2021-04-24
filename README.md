@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lapioche07
+- 👀 I’m interested in coding edting and photography
+- 🌱 I’m currently looking to learn coding
+- 📫 How to reach me anisy10@gmail.com
+- new here actually
